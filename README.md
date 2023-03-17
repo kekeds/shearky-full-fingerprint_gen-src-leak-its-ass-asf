@@ -1,10 +1,9 @@
 # shearky-full-fingerprint_gen-src-leak-its-ass-asf
 
-![image](https://user-images.githubusercontent.com/107649934/226065905-2c789c65-dc0c-430f-ac6c-655cf5098be3.png)
-
-
 it sucks
 has pastebin auth
 pasted
 idk
 dont use it
+
+![image](https://user-images.githubusercontent.com/107649934/226065934-463a72b3-83a4-4409-8faf-77f6354d5b22.png)
